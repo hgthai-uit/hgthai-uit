@@ -5,8 +5,8 @@
 </p>
 
 
-- ✍ Freshman in Computer Science (K2023 - Honors Program
-- ✍ Nguyen Quang Dieu high school for the gifted - Dong Thap
+- ✍ Computer Science K2023 - Honors Program (2023 - Now)
+- ✍ Nguyen Quang Dieu high school for the gifted - Dong Thap (2020 - 2023)
 
 
 <br />
